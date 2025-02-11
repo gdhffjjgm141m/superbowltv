@@ -1,6 +1,11 @@
 Không còn tránh né, nay Lê Hoàng Phương đã có động thái ngầm phủ nhận tin hẹn hò với hot boy Việt kiều từng hẹn hò với Thiều Bảo Trâm.  
 
-Thời gian qua, mạng xã hội rần rần trước tin đồn hẹn hò của Hoa hậu Lê Hoàng Phương. Cụ thể, dân tình lan truyền thông tin một người thân cận với nàng hậu xác nhận cô và hot boy Việt kiều kém tuổi Matthis Metharam đang trong mối quan hệ tìm hiểu. Chuyện sẽ chẳng có gì khi anh chàng này là bạn trai cũ của ca sĩ Thiều Bảo Trâm và cả hai mới chia tay hồi đầu tháng 1 vừa qua. 
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
 
 Matthis từng có khoảng thời gian hẹn hò với Thiều Bảo Trâm 
 Trong một video hậu trường của Lê Hoàng Phương, khi được hỏi về tin đồn tình cảm với Matthis Metharam, người đẹp sinh năm 1995 bất ngờ thay đổi sắc mặt. Cô tỏ ra khó chịu, đứng phắt dậy bỏ đi sau khi nói "đừng tiếp nữa". 
